@@ -37,6 +37,14 @@
 
 ---
 
+## 🎥 Showcase  
+<div align="center">
+    <h3>Live Demonstration of Fortnite Hack 2024</h3>
+    <img src="https://github.com/InfiniteCheats/PhantomStrike-Fortnite-Cheat-Tool-2024-Aimbot-ESP-Build-Assist/blob/main/fortnite-hack-aimbot-esp-wallhack.gif" alt="Fortnite Hack 2024 Aimbot ESP Wallhack">
+</div>  
+
+---
+
 ## 📥 Installation
 
 To get started with **Fortnite Hack 2024**, follow these simple steps:
